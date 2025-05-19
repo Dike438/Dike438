@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... coding
 - 📫 How to reach me ...+447438697718
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...i am jovial
+- ⚡ Fun fact: ...i am open in learning more
 
 
 <!---
